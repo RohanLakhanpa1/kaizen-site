@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://RohanLakhanpa1.github.io/kaizen-site/sitemap.xml
