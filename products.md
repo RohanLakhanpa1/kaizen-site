@@ -4,6 +4,10 @@ title: Products
 permalink: /products/
 ---
 
+### [Teachers Printable Wall Art Pack (8 designs)](https://rohanalakhana.gumroad.com/l/qeoyui)
+
+8 print-ready wall-art designs, instant PDF download, print at home or at any print shop (US Letter). Original typographic art, not AI photo generation.
+
 ### [Hiking Printable Wall Art Pack (8 designs)](https://rohanalakhana.gumroad.com/l/hwvjvk)
 
 8 print-ready wall-art designs, instant PDF download, print at home or at any print shop (US Letter). Original typographic art, not AI photo generation.
