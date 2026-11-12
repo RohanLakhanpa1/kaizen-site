@@ -4,6 +4,10 @@ title: Products
 permalink: /products/
 ---
 
+### [Holidays Printable Wall Art Pack (8 designs)](https://rohanalakhana.gumroad.com/l/gfcnol)
+
+8 print-ready wall-art designs, instant PDF download, print at home or at any print shop (US Letter). Original typographic art, not AI photo generation.
+
 ### [Yoga Printable Wall Art Pack (8 designs)](https://rohanalakhana.gumroad.com/l/vsmim)
 
 8 print-ready wall-art designs, instant PDF download, print at home or at any print shop (US Letter). Original typographic art, not AI photo generation.
